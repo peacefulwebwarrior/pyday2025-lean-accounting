@@ -1,0 +1,1 @@
+# pyday2025-lean-accounting
